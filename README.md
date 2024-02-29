@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LenaGBA
+- 👀 I’m interested in making video games and telling stories.
+- 🌱 I’m currently working on a restaurant management game.
+- 😄 Pronouns: she/her
+- Reach me using my email : lenadotjpeg@gmail.com
